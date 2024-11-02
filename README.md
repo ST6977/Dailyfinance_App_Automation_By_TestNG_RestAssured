@@ -30,6 +30,6 @@
 ![Behaviour](https://github.com/user-attachments/assets/0c868638-a61c-41ee-a945-edc75c745271)
 
 
-Full Project Record: [vvideo](https://screenrec.com/share/BSvsCERKgu)
+Full Project Record: [video](https://screenrec.com/share/BSvsCERKgu)
 
 
